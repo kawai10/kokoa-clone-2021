@@ -1,3 +1,3 @@
-Kokoa clone 2021 update
+Kokoa clone 2021 pracice
 
 So fun
